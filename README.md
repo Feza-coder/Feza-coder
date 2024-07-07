@@ -5,7 +5,7 @@
 ## Contact Information
 - **Email**: [fezamukundwamelissa@gmail.com](mailto:fezamukundwamelissa@gmail.com)
 - **LinkedIn**: [MUKUNDWA FEZA MELISSA]([https://www.linkedin.com/in/mukundwa-feza-melissa-ab5ba0285]
-- **Twitter**: [@yourtwitterhandle](https://twitter.com/mukundwa-feza-melissa)
+- **Twitter**: [@MelissaFeza](https://twitter.com/mukundwa-feza-melissa)
 
 ## Location
 - Kampala, Uganda
