@@ -4,7 +4,7 @@
 
 ## Contact Information
 - **Email**: [fezamukundwamelissa@gmail.com](mailto:fezamukundwamelissa@gmail.com)
-- **LinkedIn**: [MUKUNDWA FEZA MELISSA]([https://www.linkedin.com/in/mukundwa-feza-melissa-ab5ba0285]
+- **LinkedIn**: MUKUNDWA FEZA MELISSA: https://www.linkedin.com/in/mukundwa-feza-melissa-ab5ba0285
 - **Twitter**: [@MelissaFeza](https://twitter.com/mukundwa-feza-melissa)
 
 ## Location
